@@ -6,6 +6,6 @@ I like Old School Coding
 
 My Code is very messy
 
-Founder at Visual
+Founder @Visual aka VSL
 
-https://discord.gg/heyho
+https://discord.gg/vslbots
